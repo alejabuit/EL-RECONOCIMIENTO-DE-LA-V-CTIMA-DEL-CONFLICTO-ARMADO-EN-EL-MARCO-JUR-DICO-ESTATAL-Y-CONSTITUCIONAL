@@ -1,4 +1,4 @@
-# EL-RECONOCIMIENTO-DE-LA-V-CTIMA-DEL-CONFLICTO-ARMADO-EN-EL-MARCO-JUR-DICO-ESTATAL-Y-CONSTITUCIONAL
+# EL RECONOCIMIENTO DE LAS VICTIMAS DEL CONFLICTO ARMADO EN EL MARCO JURDICO ESTATAL Y CONSTITUCIONAL
  Análisis de la forma como dentro del discurso legal y jurídico se reconoce a las víctimas, observar que condiciones cumple una personas para poder ser reconocida como tal y más aún si la referencia a las víctimas se hace en miras a una restitución de su condición como parte del fin del conflicto
 ### Por: Mayerly Duque y Alejandra Buitrago 
 ___
@@ -19,7 +19,7 @@ ___
 ¿Cómo definimos la categoría “víctima”, como los reconoce  el Estado y bajo el marco jurídico que herramientas poseen?
 Para el análisis del conflicto armado debemos tener presente 3 referentes conceptuales. Primero una lectura con respecto al marco jurídico y las leyes que han sido pertinentes para abarcar lo relacionado con el conflicto, en segundo lugar un manejo de categorías propias y teorías conceptuales avaladas bajo un marco teórico y académico. Y como tercer carácter el diálogo directo con los participantes directos o indirectos del conflicto armado.
 
-![Reparación](https://www.unidadvictimas.gov.co/especiales/leyvictimas2020/assets/images/logo-dos.jpg)    
+![Reparación](https://www.elcolombiano.com/documents/10157/0/620x250/0c0/0d0/none/11101/OMKE/ley-victimas-conflicto-620x250-31072011.jpg)     
 
 ---
 ## Marco Metodológico 
